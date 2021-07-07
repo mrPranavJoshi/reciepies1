@@ -1,0 +1,3 @@
+take potato and onion
+mix in mixer and cook it
+and eat ...
